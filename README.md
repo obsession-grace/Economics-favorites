@@ -1,6 +1,6 @@
 # Economics-favorites
 
-If you are interested in economics, the following link maybe useful for you. 
+如果你对经济学感兴趣，以下链接或许对你有用。 
 
 ### 数据
 
